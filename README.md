@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Mujeebur Rahman
+- 👀 I’m interested in learning new softwares and new technologies etc...
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me @ mujeeburrahman56@outlook.com
+- 😄 Pronouns: mujeeb
+- ⚡ Fun fact: nothing much
